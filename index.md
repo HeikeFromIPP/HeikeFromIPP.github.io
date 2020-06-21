@@ -15,6 +15,6 @@ Im März 2009 erschien Jörg Maurers erster Kriminalroman Föhnlage mit der Figu
 > "Morgen habe ich eine Matinee, eine Vormittagsvorstellung..."
 > "Ich weiß, was eine Matinee ist. Die Hälfte aller bayrischen Polizisten hat Abitur. Ich bin einer davon." 
 
-## Und do sieht er aus, der Herr Maurer:
+## So sieht das Buch aus:
 
-<img src="https://www.joergmaurer.de/media/joerg-maurer-autor-foto-2017080056-gg-2995x2244.jpg"/> 
+<img src="https://www.joergmaurer.de/media/joerg-maurer-autor-buch-krimi-cover-foehnlage-1000x1519.jpg"/> 
