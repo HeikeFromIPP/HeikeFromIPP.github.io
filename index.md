@@ -10,14 +10,11 @@ Im März 2009 erschien Jörg Maurers erster Kriminalroman Föhnlage mit der Figu
 * 2010: Hochsaison, Alpenkrimi, Fischer Taschenbuch Verlag, ISBN 978-3-596-18653-2
 * 2011: Niedertracht, Alpenkrimi, Fischer Taschenbuch Verlag, ISBN 978-3-596-18894-9
 
-## Leseprobe aus Föhnlage Alpenkrimi 
+## Leseprobe aus Föhnlage Alpenkrimi:
 
-> "Ihre Karten bitte."
-> Der Portier las beide Konzertkarten, und er las sie  so  sorgfältig,  als  hätte  er  im  Kleingedruckten  noch  
-> etwas  entdeckt,  was  gegen  den  Konzertbesuch  der  beiden  Nachkömmlinge  spräche.  Er  kostete  seine  
-> kleine  Macht  aus  und  betrachtete,  jetzt  reichlich  sinnfrei, auch noch die leeren Rückseiten. 
-> Ingo Stoffregen  wiederum  war  ganz  froh  über  die  Verzögerung,  er  konnte  noch  ein  paar  Mal  kräftig  
-> ein-  und  ausschnaufen  und  so  seine  Blut-pH-Werte  wieder  normalisieren.
-> "Langsam  ...  gehts  wieder  ...«,  keuchte  er,  worauf  ihn  der  großgewachsene  Portier  von  oben  herab  
-> strafend  ansah,  in  seinen  Augen  stand  Banause! geschrieben.  
-> Er  gab  ihnen  die  Karten  zurück  und  winkte sie zu einer Tür, die mit rotem Samt drapiert war.
+> "Morgen habe ich eine Matinee, eine Vormittagsvorstellung..."
+> "Ich weiß, was eine Matinee ist. Die Hälfte aller bayrischen Polizisten hat Abitur. Ich bin einer davon." 
+
+## So sieht das Buch aus:
+
+<img src="https://www.joergmaurer.de/media/joerg-maurer-autor-buch-krimi-cover-foehnlage-1000x1519.jpg"/> 
