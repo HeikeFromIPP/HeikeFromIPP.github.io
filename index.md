@@ -20,3 +20,5 @@ Im März 2009 erschien Jörg Maurers erster Kriminalroman Föhnlage mit der Figu
 ## So sieht das Buch aus:
 
 <img src="https://www.joergmaurer.de/media/joerg-maurer-autor-buch-krimi-cover-foehnlage-1000x1519.jpg"/> 
+
+Quelle: https://www.joergmaurer.de/joerg-maurer-autor-download.html?nid=204
